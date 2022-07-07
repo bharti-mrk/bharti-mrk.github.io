@@ -1,1 +1,0 @@
-# bharti-mrk.github.io
